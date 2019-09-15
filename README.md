@@ -34,4 +34,4 @@ This course kind of lives upto any online coding competitions, whilst teaching a
 
 ## Coursera Certificate
 
-My [Certificate](https://www.coursera.org/account/accomplishments/verify/ZBALKAJ3NSN4)
+My [Certificate](https://www.coursera.org/account/accomplishments/verify/ZBALKAJ3NSN4) of completion.
